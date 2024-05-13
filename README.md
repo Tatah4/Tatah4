@@ -6,5 +6,8 @@
 
 - Estou aprendendo cada vez mais sobre sistemas e desenvolvimentos 🔐
 
+![](  https://media.tenor.com/qbhpNdk612IAAAAi/lol-kawaii.gif
+)
+
   
 
